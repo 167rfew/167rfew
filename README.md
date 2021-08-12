@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @167rfew
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+167rfew/167rfew is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->Hi coursera 
+s
+coursera learning/ Params./jsons/file/
+jikjpoinmp'jf-9u31r9309u  21909j/ files ijijklmldkmoilk 
